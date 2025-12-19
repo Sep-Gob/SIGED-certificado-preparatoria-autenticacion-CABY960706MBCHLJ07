@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CABY960706MBCHLJ07
+CABY960706MBCHLJ07
